@@ -20,20 +20,15 @@ amido de milho
 
 ##Modo de preparo
 Modo de preparo : 30min
-1
-Em uma panela, cozinhe o macarrão instantâneo com 1 tablete de tempero pronto sabor galinha e sal. Reserve.
+1- Em uma panela, cozinhe o macarrão instantâneo com 1 tablete de tempero pronto sabor galinha e sal. Reserve.
 
 
-Separe 1 xícara da mesma água que foi cozido o macarrão e adicione a uma panela.
+2- Separe 1 xícara da mesma água que foi cozido o macarrão e adicione a uma panela.
 
-3
-Acrescente o orégano, o tempero pronto para carnes, legumes e arroz e deixe ferver.
+3- Acrescente o orégano, o tempero pronto para carnes, legumes e arroz e deixe ferver.
 
-4
-Após fervida a água, adicione o creme de leite, o leite e a maisena, deixe ferver novamente.
+4- Após fervida a água, adicione o creme de leite, o leite e a maisena, deixe ferver novamente.
 
-5
-E para finalizar acrescente o queijo, o milho verde e o macarrão.
+5- E para finalizar acrescente o queijo, o milho verde e o macarrão.
 
-6
-Pronto para servir.
+6- Pronto para servir.
