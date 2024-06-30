@@ -1,6 +1,6 @@
-#Salada de beterraba
+# Salada de beterraba
 
-##Ingredientes (4 porções)
+## Ingredientes (4 porções)
 macarrão instantâneo
 250 g de macarrão instantâneo
 queijo mussarela
@@ -18,7 +18,7 @@ sal a gosto
 amido de milho
 1 colher de maisena
 
-##Modo de preparo
+## Modo de preparo
 Modo de preparo : 30min
 1- Em uma panela, cozinhe o macarrão instantâneo com 1 tablete de tempero pronto sabor galinha e sal. Reserve.
 
