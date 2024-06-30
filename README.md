@@ -1,5 +1,6 @@
 # Livro de receitas
 Ola, Bem vindo ao meu livro de receitas
-## Pratos Frios 
+## Saladas
  - Salada de beterraba
  - Salada agridoce
+ - Rabanada
